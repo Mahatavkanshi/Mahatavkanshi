@@ -6,7 +6,7 @@ Email Me 👉 ✉️ **mahatavkanshisaini@gmail.com** For Collaboration/Project 
 - 🔭 **I’m currently working in:** KORP Software pvt limited.
 - 🌱 **I’m currently learning:** Fullstack
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** Mahatavkanshisaini@gmail.com
+- 📫 **How to reach me:** mahatavkanshisaini@gmail.com
 - 😄 **Pronouns:** Mahatavkanshi
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 ## 🌐 Socials:
